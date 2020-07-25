@@ -1,1 +1,2 @@
-Let's gooooooooo
+Let's gooooooooo!
+This is Frawwhat's first project!
